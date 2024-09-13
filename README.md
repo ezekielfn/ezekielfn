@@ -19,7 +19,7 @@
 ### Interests
 - **Computer and Hardware Enthusiast**
 
-## 🌱 I’m currently working on:
+## 🌱 I’m currently working on
 - Solutions for **climate change** using **telecommunications** and **emerging technologies**.
 
 ## 📫 Let's connect
